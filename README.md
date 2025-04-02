@@ -1,8 +1,8 @@
 ## Hi there, the name is ✨El✨
 
-Surrealistic type of coderrr.
+Surrealistic type of coderrr
   
-I like poetry and philosophy. Coding states at third place :>
+I like poetry and philosophy and coding (in that order :>)
 
 <!--Here are some ideas to get you started:
 
